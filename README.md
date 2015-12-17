@@ -1,1 +1,2 @@
-HAHAHAHAHAHAHAHA
+Merge ornegi
+Diğer dosya uçar.
